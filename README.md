@@ -1,5 +1,4 @@
 ### Hi there 👋
-Pronouns: she/her
 Currently learning: a lot!
 
 <!--
